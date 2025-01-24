@@ -1,0 +1,1 @@
+This website serves as my online resume. It showcases my skills, experience, and projects, providing a comprehensive overview of my professional background. Feel free to explore and learn more about me!
